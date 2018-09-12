@@ -1,1 +1,1 @@
-this is a simple practise
+对未来有期待, 但一切随缘
